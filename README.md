@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @yamanbilgitvyoutube
+- 👀 I’m interested in Space,Coding,Musics,Games
+- 🌱 I’m currently learning Unfortunately i am still in school desks...
+- 💞️ I’m looking to collaborate on just one person me !But if you want we can collaborate
+- 📫 How to reach me you can reach me my youtube channel !YAMAN BİLGİ TV
